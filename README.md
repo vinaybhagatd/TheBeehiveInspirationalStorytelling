@@ -60,3 +60,5 @@ As an AI Prompt Engineer and Team Lead for this storytelling concept, app, and p
 
 My LinkedIn profile: https://www.linkedin.com/in/vinay-b-79b831215
 Email ID: vinaydbhagat@protonmail.com
+
+Copyright © 2023 Innovative UX Solutions |   All rights reserved.
